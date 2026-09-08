@@ -2,7 +2,7 @@
 
 _In all this darkness, I make lamps._
 
-Funky lamps made by hand out of used materials. Are you interested in a lamp or in making your own lamp from used materials? Contact me at fliiiplights@proton.me
+Funky lamps made by hand out of used materials. Are you interested in a lamp or in making your own lamp from used materials? Contact me at (mailto:fliiiplights@proton.me)
 
 Based in Utrecht, the Netherlands. 
 
